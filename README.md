@@ -1,6 +1,6 @@
 ## Gisela Ocampo
 
-**Soy estudiante de la UTN**
+**Soy estudiante de la UTN y vivo en la ciudad de Campana**
 
 Mis pasatiempos son:
 
